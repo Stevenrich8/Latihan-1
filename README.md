@@ -1,2 +1,3 @@
 # Latihan-1
-I LOVE U
+I LOVE U FANDEL
+
