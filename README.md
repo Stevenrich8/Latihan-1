@@ -1,3 +1,2 @@
 # Latihan-1
-I LOVE U FANDEL
-
+"LIVE & LEARN"
